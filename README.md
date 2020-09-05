@@ -4,21 +4,21 @@
 
 About the Contributors:
 
- - **Rushi Bhatt** - ECE, 4 admits
-Carnegie Mellon university
-University of Southern California
-University of Washington Seattle
-University of California, LA
+ - **Rushi Bhatt** - ECE, 4 admits <br>
+Carnegie Mellon university<br>
+University of Southern California<br>
+University of Washington Seattle<br>
+University of California, LA<br>
 Job offer from - United health group(UHG)
 
-- **Deep Jariwala** - ECE, 2 admit 
-University of Waterloo.
-Monash University.
+- **Deep Jariwala** - ECE, 2 admit <br>
+University of Waterloo.<br>
+Monash University.<br>
 
-- **Darshit Patel** - Mech, 3 Admits 
-Virginia Tech
-Michigan Tech
-Clemson university
+- **Darshit Patel** - Mech, 3 Admits<br> 
+Virginia Tech<br>
+Michigan Tech<br>
+Clemson university<br>
 
 ## Masters Abroad - an interactive session with DANK WHY MASTERS
 
