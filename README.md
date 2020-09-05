@@ -44,6 +44,7 @@ Clemson university<br>
  - If you want to pursue research at you university itself in summer, Spring intake is beneficial.
 
 
+
 ## TIMELINE :- FOR FALL(SEPT) 2021
 
  - For USA / Canada: -- Before August 2020 GRE/ IELTS/ TOEFL 
@@ -57,8 +58,28 @@ Clemson university<br>
 
 ## TIMELINE :- FOR JULY 2021 INTAKE
 
- - For Australia: -- Before August 2020 IELTS/ PTE -- August 2020 to September 2020 College Shortlist -- September 2020 to November 2020 SOP/Resume/Interview -- November 2020 to Jan 2021 Application Completion -- Feb 2021 to April 2021 Admit -- May 2021 Visa -- July 2021 Fly Note: University deadlines are around 31st January TIMELINE :- FOR WINTER SEMESTER(SEPT 2021) 
- - For Germany: -- Before November 2020 IELTS/TOEFL/German language certi. -- Nov - Feb 2020/21 University shortlisting -- Jan - Feb 2021 Resume and LORs -- March - June 2021 University application deadlines - June - July 2021 Admits -- July-August 2021 Visa -- August/Sept 2021 Fly Note: University deadlines start from 1st March and goes upto June.
+ - For Australia: 
+	 - Before August 2020 IELTS/ PTE 
+	 -  August 2020 to September 2020 College Shortlist 
+	 -  September 2020 to November 2020 SOP/Resume/Interview 
+	 -  November 2020 to Jan 2021 Application Completion 
+	 -  Feb 2021 to April 2021 Admit -- May 2021 Visa 
+	 -  July 2021 Fly Note: University deadlines are around 31st January
+ 
+ 
+
+## TIMELINE :- FOR WINTER SEMESTER(SEPT 2021)
+
+ For Germany: 
+	 - Before November 2020 IELTS/TOEFL/German language certi. 
+	 -  Nov - Feb 2020/21 University shortlisting 
+	 - Jan - Feb 2021 Resume and LORs 
+	 - March - June 2021 University application deadlines 
+	 -  June - July 2021 Admits 
+	 - July-August 2021 Visa 
+	 -  August/Sept 2021 Fly
+	 -  Note: University deadlines start from 1st March and goes upto June.
+
 
 ## IMMIGRATION POLICIES
 
