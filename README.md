@@ -166,6 +166,10 @@ Clemson university<br>
    -- US News, QS rankings 
    -- DAAD website for Germany 
    -- Facebook MS in US/ Canada groups 
+   
+## MATERIALS (GOOGLE DRIVE LINKS)
+- [GRE](https://drive.google.com/drive/folders/1UHpalASviG1BFSSO-kaL1O47vpIarpyz?usp=sharing)
+- [GRE, SOP, LOR](https://drive.google.com/drive/folders/1UHpalASviG1BFSSO-kaL1O47vpIarpyz?usp=sharing)
 
 ## TIPS
 
